@@ -4,7 +4,6 @@
 
 ### The Anniversary of Nothing
 My husband forgot our anniversary. Again. 
-
 Not the big one - our wedding anniversary, he remembers that one bc the calendar screams at him. I mean the anniversary of our first fight. The anniversary of the day we moved in together. The anniversary of when he finally admitted he loved me more than his PlayStation.
 
 I know, I know. "Yana, that's not a real anniversary." But to me? Those tiny dates were proof we were paying attention. That we were still choosing each other in the small moments. And he forgot. Again. For the third year in a row.
